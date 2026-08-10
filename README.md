@@ -1,16 +1,14 @@
-## Hi there 👋
+⠀⠀⠀⠀⠀⠀⠀&emsp;⠀![image_alt](https://i.postimg.cc/qRVWrmR1/feathered-image-(1).png)
 
-<!--
-**marineCraigg/marineCraigg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+&emsp; &emsp; &emsp;  &emsp;  &emsp;  &emsp;  &emsp;⠀⠀&emsp;⠀⠀&emsp;⠀⠀&emsp;⠀&emsp;⠀&emsp; 우울 &emsp; 𝘊rᥲіg &emsp;  𓏵  &emsp;  𝗕𝗹𝗮𝗰𝗸 𝘴𝘰𝘳𝘳𝘰𝘸 &emsp; ʚଓㅤ ⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀ㅤㅤ ㅤ 
+      
+ㅤ   ⠀⠀⠀⠀⠀⠀⠀ ㅤ៸៸ㅤㅤ ⡞⠳⣄⣀⣠⠞⢷ &emsp; 4𝘵e̲e̲n̲ㅤ .ㅤ ◞ ᜊ( ' ⩊ '𖦹)ᜊ
+⠀ 
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center"> ![image_alt](https://i.postimg.cc/sDsJPYkk/IMG-20260810-110450.png) <p align="center">
+ ㅤ &emsp; &emsp; &emsp;  &emsp;    ⠀⠀ ⌣  ୨୧  &emsp;  ׅㅤ&emsp;  whisper to 𝙞𝙣𝙩 ... &emsp; ˒˓
+ 
+&emsp; &emsp; &emsp;  &emsp;  &emsp;  &emsp;  &emsp; &emsp;⠀&emsp; &emsp; ★ &emsp; ︶︶ &emsp; [Rentry](https://rentry.co/marinecraigg) &emsp; [Strawpage](https://marinecraigg.straw.page)
+ 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀![image_alt](https://i.postimg.cc/CM49ysVH/feathered-image-(2).png)

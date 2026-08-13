@@ -9,6 +9,6 @@
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center"> ![image_alt](https://i.postimg.cc/sDsJPYkk/IMG-20260810-110450.png) <p align="center">
  ㅤ &emsp; &emsp; &emsp;  &emsp;    ⠀⠀ ⌣  ୨୧  &emsp;  ׅㅤ&emsp;  $$\color{#427E9C} w2 𝙞𝙣𝙩 ... $$ &emsp; ˒˓
  
-&emsp; &emsp; &emsp;  &emsp;  &emsp;  &emsp;  &emsp; &emsp;⠀&emsp; &emsp; ★ &emsp; ︶︶ &emsp; [Rentry](https://rentry.co/marinecraigg) &emsp; [Strawpage](https://marinecraigg.straw.page)
+&emsp; &emsp; &emsp;  &emsp;  &emsp;  &emsp;  &emsp; &emsp;⠀&emsp; &emsp; ★ &emsp; ︶︶ &emsp; [Rentry](https://rentry.co/en949482) &emsp; [Strawpage](https://marinecraigg.straw.page)
  
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀![image_alt](https://i.postimg.cc/CM49ysVH/feathered-image-(2).png)
